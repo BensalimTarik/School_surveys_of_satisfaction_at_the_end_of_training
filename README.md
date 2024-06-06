@@ -1,1 +1,1 @@
-# School_surveys_of_satisfaction_at_the_end_of_training
+Mass surveys allowing the quality of teaching to be noted and assessed in a school: Use of several axes of analysis, focus on the most important themes which affect the student life of learners as well as the comparison of known scoring models in the field of marketing and customer satisfaction.
